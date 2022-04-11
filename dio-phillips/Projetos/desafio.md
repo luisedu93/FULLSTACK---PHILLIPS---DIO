@@ -1,2 +1,0 @@
-# Dev em Andamento :cactus:
-
